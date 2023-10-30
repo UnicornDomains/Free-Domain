@@ -1,6 +1,8 @@
 # Free-Domain
 https://www.google.com/search?q=freenom+alternative https://www.semrush.com/website/freenom.com/competitors/
-https://www.google.com/search?q=Dot+TK
+
+https://www.google.com/search?q=dot+tk+alternative https://www.google.com/search?q=Dot+TK
+
 
 # list:
 https://www.getfreedomain.name/
